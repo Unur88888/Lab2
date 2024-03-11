@@ -1,4 +1,4 @@
-# Brian 
+# Elena
 # Calculator to add two numbers and display the result 
 
 # 1. Input
