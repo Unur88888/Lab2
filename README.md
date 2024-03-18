@@ -7,17 +7,17 @@ I am able to adapt, exceed and achieve great heights and expectations with my in
 
 * Translator (2016-2017)
 
--Translated wide range of documents CHinese to Mongolian 
+- Translated wide range of documents CHinese to Mongolian 
 
--Organized work schedule for stuff 
+- Organized work schedule for stuff 
 
 * Part time waitress (2020-2022)
 
--Customer Service 
+- Customer Service 
 
--Performed daliy cleaning duties 
+- Performed daliy cleaning duties 
 
--Setting up tables 
+- Setting up tables 
 
 # Education background 
 
@@ -44,7 +44,7 @@ I am able to adapt, exceed and achieve great heights and expectations with my in
 
 * Effective listening 
 
-Patience 
+* Patience 
 
-Ability to use positive language 
+* Ability to use positive language 
 
