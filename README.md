@@ -31,7 +31,7 @@ I am able to adapt, exceed and achieve great heights and expectations with my in
 
 * English (B2) 
 
-*Chinese HSK6 
+* Chinese HSK6 
 
  # Skills 
 * Customer Relationship 
